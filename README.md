@@ -1,1 +1,0 @@
-# Jared-Thompkins.github.io
